@@ -273,3 +273,47 @@ Design a sleek, minimalist logo for 'GO'. The logo should feature a modern, abst
 
 ![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/d715bf3e-875b-4364-983c-e092edd11bda)
 
+
+
+a sarbitrarium anime character's portrait, formed by kirigami, clippings, decoupage, screen print, popart, contemporary art
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/01917dcf-5d13-4ada-94bd-ca6aeaee2380)
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/b199d77f-97b4-423a-a391-128dbb9b4a4c)
+
+info graphic illustration Topic: The Eaten Brain - The Internet makes people lose their autonomy Style: Millennial retro The pink brain is the center of the picture, supplemented by the Internet and Internet devices, and the background is mainly silver, pink, yellow and green
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/9cb1c683-b25b-4f10-927b-8d638ee1715c)
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/be471be1-de28-4e0f-848c-c8a108dfed7b)
+
+Zoo animals having a rave party, flat illustration, mischievous, sophisticated and joyful
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/7c6d75d8-5a0a-41f5-a3c9-80e72fd8186a)
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/67c44d6b-be44-4d93-b6e3-0a6b9ac4eb47)
+
+Cyber hackers, competition among hackers, large amounts of virtual currency, gold coins falling from the sky,digital world,American comic style
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/ac3272c9-52b6-493e-9a2b-b2b65c804d55)
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/07f7e361-ef05-4af6-84db-026b726daf7b)
+
+
+a blue cat, Fear, frightened,jump up, Spread your limbs, eyes widened,Cartoon,2D illustration,Simple
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/748e1f9e-4f3e-4c58-bcf3-396571b7dcfb)
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/0419795a-0300-4abf-87a3-70abe80178e7)
+
+a scene from camera front phone, panda taking selfie picture on a yacht, panda wearing blue shirt and gold necklace, giraffe and bird taking image with panda wearing shirts, dolphins jumping on water, wide angel shot, pure blue sea
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/770ea82c-4f4e-4643-b4ff-11228540f54e)
+
+coloring pages for adults, aerial axonometric view of neighborhoods in Columbus Ohio with city skyline and Scioto Mile in the background with bike paths, houses, shops and businesses in the foreground, in the style of Cartoons, Rounded Lines, Low Detail, Doodles background, Black and white, No Shading
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/6dbd6452-5230-4915-b77f-94126298a147)
+
+![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/a4e5bd4f-29fc-40d6-a66d-010bbd2d0cf6)
+
+
