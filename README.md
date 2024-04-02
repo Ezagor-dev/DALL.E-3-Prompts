@@ -1,5 +1,5 @@
 ## DALL.E-3-Prompts
-DALL.E 3 Prompts
+DALL.E 3 Prompts.
 
 
 3D smiled teenager game character with stickers on his face, yellow colour theme, cinema 4d, redshift
