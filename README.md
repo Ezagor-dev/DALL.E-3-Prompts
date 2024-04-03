@@ -310,7 +310,7 @@ a scene from camera front phone, panda taking selfie picture on a yacht, panda w
 
 ![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/770ea82c-4f4e-4643-b4ff-11228540f54e)
 
-coloring pages for adults, aerial axonometric view of neighborhoods in Columbus Ohio with city skyline and Scioto Mile in the background with bike paths, houses, shops and businesses in the foreground, in the style of Cartoons, Rounded Lines, Low Detail, Doodles background, Black and white, No Shading
+coloring pages for adults, aerial axonometric view of neighborhoods in Columbus Ohio with city skyline and Scioto Mile in the background with bike paths, houses, shops and businesses in the foreground, in the style of Cartoons, Rounded Lines, Low Detail, Doodles background, Black and white, No Shading.
 
 ![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/6dbd6452-5230-4915-b77f-94126298a147)
 
