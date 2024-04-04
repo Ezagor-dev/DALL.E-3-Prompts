@@ -316,4 +316,4 @@ coloring pages for adults, aerial axonometric view of neighborhoods in Columbus 
 
 ![image](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/a4e5bd4f-29fc-40d6-a66d-010bbd2d0cf6)
 
-
+![karak](https://github.com/Ezagor-dev/DALL.E-3-Prompts/assets/45847677/07044e61-ccdf-4e39-bfbc-d570e3dbe8b9)
